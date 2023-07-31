@@ -3,4 +3,4 @@ Worked as a data analyst to help the company understand how the business has per
 
 About Denis Office Supplies and Furnishings:
 
-Denis sells office supplies, furnishings, maintenance and housekeeping equipments, and public area items to various properties in different cities
+Denis sells office supplies, furnishings, maintenance and housekeeping equipments, and public area items to various properties in different cities.
